@@ -27,7 +27,7 @@ A highly creative and results-oriented Product Designer with over 3 years of exp
 ### 🌐 Connect with Me
 - [Twitter/X](https://x.com/deenofweb3_eth?t=iYRMF_ZrBjOIupojJoeuGw&s=09)
 - [Portfolio/Behance](https://www.behance.net/bobdeeabdulaz)
-- [LinkedIn(https://www.linkedin.com/in/nurudeen-abdulazeez-159471214)
+- [LinkedIn](https://www.linkedin.com/in/nurudeen-abdulazeez-159471214)
 ---
 
 > “Security and creativity drive the future of blockchain.”  
